@@ -1,4 +1,4 @@
-# 
+# updated Adobe Photoshop for PC scripts is the best Adobe Photoshop for PC scripts with fluid-simulation and vector-effects. Safe, reliable, and optimized for maximum performance.
 
 
 
